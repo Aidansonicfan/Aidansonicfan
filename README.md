@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Aidan!
+- 👀 I’m interested in finding sonic games.
+- 🌱 I’m currently learning how to fix stuff.
+- 💞️ I’m looking to collaborate on nothing.
+- 📫 How to reach me ewanyaidan@gmail.com
+- 😄 Pronouns: he/him.
+- ⚡ Fun fact: I was in Hawaii when i typed this
